@@ -6,4 +6,4 @@ Recently Graduated - Completed my Master of Science in Business Analytics from C
 
 I'm currently on the lookout for opportunities to apply my skills and knowledge in Business Analytics to drive actionable insights and deliver tangible value to organizations. Let's connect and explore how we can leverage data to unlock new possibilities!
 
-https://www.linkedin.com/in/ruhi-sania-781544168/
+https://www.linkedin.com/in/ruhi-s-781544168/
